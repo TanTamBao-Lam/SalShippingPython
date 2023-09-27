@@ -24,6 +24,7 @@ Over 10 lb | $4.75 | $20.00
 
 Flat charge: $125.00
 
+
 **Drone Shipping**
 
 Weight of Package | Price per Pound | Flat Charge
