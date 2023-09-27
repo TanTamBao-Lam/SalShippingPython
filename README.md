@@ -21,6 +21,7 @@ Over 6 lb but less than or equal to 10 lb | $4.00 | $20.00
 Over 10 lb | $4.75 | $20.00 
 
 **Ground Shipping Premium**
+
 Flat charge: $125.00
 
 **Drone Shipping**
